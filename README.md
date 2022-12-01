@@ -1,1 +1,0 @@
-# advocate-mazid.github.io
